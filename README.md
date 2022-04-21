@@ -1,0 +1,1 @@
+### Oi, aqui é a Cíntia, estudante de programação e aventureira no mundo da tecnologia! 👋
